@@ -10,3 +10,7 @@ then proceed to load the game and ur done.
 
 fuck ketashit
 you are all faggots lmao suck my dick
+
+
+they claim they are "buying" a new injector buy idk abt that one lol
+https://media.discordapp.net/attachments/1187139136621129729/1187139613249241139/image.png
