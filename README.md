@@ -13,6 +13,7 @@ you are all faggots lmao suck my dick
 
 nice rat too lol
 https://cdn.discordapp.com/attachments/1186127027179372705/1187044800344633425/image.png
+https://cdn.discordapp.com/attachments/1186127027179372705/1187080015792324738/image.png
 
 they claim they are "buying" a new injector buy idk abt that one lol
 https://media.discordapp.net/attachments/1187139136621129729/1187139613249241139/image.png
